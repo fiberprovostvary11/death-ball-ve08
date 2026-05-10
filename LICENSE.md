@@ -1,4 +1,4 @@
-
+Experience death ball like never before with death ball Scripts new, the #1 Script. Includes god mode and auto-collect for unbeatable performance.
 
 
 
